@@ -15,5 +15,5 @@ intp audhd white
 
 - recreational marijuana user
 - reclaimable slur user
-- always sitting with [my brother/husband](https://github.com/beetlectopia)
+- married to [my big brother](https://github.com/beetlectopia)
 - local proship freak
