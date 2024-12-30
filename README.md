@@ -5,9 +5,9 @@
 #### <h3 align="center"> nova </h3>
 
 <div align="center">
-she transgirl 18
+she 18
   
-intp audhd white
+audhd white
 
 [github](https://github.com/novapuppygirl)  [atabook](https://novabeetle.atabook.org/)
 
