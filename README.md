@@ -15,5 +15,5 @@ bi white
 
 - uses reclaimable slurs
 - marijuana enthusiast
-- staunchly pro-ship 
+- staunchly proship 
 - always sitting next to [my older brother](https://github.com/strangeopolis)
