@@ -13,7 +13,7 @@ bi white
 
 </div>
 
-- recreational marijuana user
+- marijuana user
 - reclaimable slur user
 - sitting next to [my big brother](https://github.com/strangeopolis)
 - local proship freak
