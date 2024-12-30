@@ -7,7 +7,7 @@
 <div align="center">
 she 18
   
-audhd white
+bi white
 
 [github](https://github.com/novapuppygirl)  [atabook](https://novabeetle.atabook.org/)
 
