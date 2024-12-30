@@ -15,5 +15,5 @@ bi white
 
 - reclaimable slur user
 - marijuana enthusiast
-- local proship freak
+- staunchly pro-ship 
 - always sitting next to [my older brother](https://github.com/strangeopolis)
