@@ -13,7 +13,7 @@ bi white
 
 </div>
 
-- reclaimable slur user
+- uses reclaimable slurs
 - marijuana enthusiast
 - staunchly pro-ship 
 - always sitting next to [my older brother](https://github.com/strangeopolis)
