@@ -9,7 +9,7 @@ she 18
   
 bi white
 
-[github](https://github.com/novapuppygirl)  [atabook](https://novabeetle.atabook.org/)
+[github](https://github.com/novapuppygirl)  [atabook](https://strangenova.atabook.org/)
 
 </div>
 
