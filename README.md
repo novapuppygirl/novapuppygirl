@@ -15,5 +15,5 @@ bi white
 
 - recreational marijuana user
 - reclaimable slur user
-- married to [my big brother](https://github.com/strangeopolis)
+- sitting next to [my big brother](https://github.com/strangeopolis)
 - local proship freak
