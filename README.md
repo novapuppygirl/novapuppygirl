@@ -13,7 +13,6 @@ bi white
 
 </div>
 
-- uses reclaimable slurs
-- marijuana enthusiast
+- chronic stoner
 - openly [proship](https://define-proship.carrd.co/)
 - always sitting next to [my older brother](https://github.com/strangeopolis)
