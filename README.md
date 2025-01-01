@@ -22,3 +22,5 @@ bi white
 - marijuana enthusiast
 - openly [proship](https://define-proship.carrd.co/)
 - always sitting next to [my older brother](https://github.com/strangeopolis)
+- if on safe, limit interaction if >18
+
