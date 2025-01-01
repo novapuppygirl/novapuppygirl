@@ -1,3 +1,9 @@
+
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=novapuppygirl&color=lightgrey&label=profile+views+)
+</div>
+
 <p align="center">
 <img width="600" src="https://i.ibb.co/ggBHL2L/68747470733a2f2f6d656469612e646973636f72646170702e6e65742f6174746163686d656e74732f313130353236313434.webp">
 </p> 
