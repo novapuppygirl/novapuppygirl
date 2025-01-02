@@ -19,7 +19,7 @@ bi white
 
 </div>
 
-- marijuana enthusiast
+- stoner
 - openly [proship](https://define-proship.carrd.co/)
 - limited int if >18
 - always sitting next to [my older brother](https://github.com/strangeopolis)
