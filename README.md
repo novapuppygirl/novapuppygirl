@@ -22,4 +22,4 @@ bi white
 - stoner
 - openly [proship](https://define-proship.carrd.co/)
 - limit int if >18
-- matching w/ [my older brother](https://github.com/strangeopolis)
+- sitting w/ [my older brother](https://github.com/strangeopolis)
